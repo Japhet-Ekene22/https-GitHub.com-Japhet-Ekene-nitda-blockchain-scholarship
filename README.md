@@ -1,1 +1,1 @@
-# https-GitHub.com-Japhet-Ekene-nitda-blockchain-scholarship
+# https://github.com/Japhet-Ekene/nitda-blockchain-scholarship
